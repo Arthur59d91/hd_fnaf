@@ -17,4 +17,4 @@ Click [here](https://irv77.github.io/hd_fnaf/ucn/) for FNAF UCN!
 
  <hr>
 
-NOT OFFICIAL FNAF PRODUCT. NOT APPROVED BY OR ASSOCIATED WITH SCOTT CAWTHON.
+criadores Arthur Daniel Akira Murilo Rodrigues
